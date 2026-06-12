@@ -32,3 +32,7 @@ Zona de pânico: desafio demais de uma só vez. Pode nos paralisar em vez de imp
 Atividade de casa: Me inscrever no curso fotovoltaicos e iniciar o curso com o Gael.
 
 A verdadeira mudança geralmente acontece de outra forma: com pequenas decisões sustentadas ao longo do tempo.
+
+Cada pequeno passo que você dá, mesmo que hoje pareça mínimo, está levando você para mais longe de onde estava. Essa é a verdadeira mudança.
+
+O importante não é ir rápido: é não parar.
