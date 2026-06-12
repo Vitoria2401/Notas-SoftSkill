@@ -36,3 +36,7 @@ A verdadeira mudança geralmente acontece de outra forma: com pequenas decisões
 Cada pequeno passo que você dá, mesmo que hoje pareça mínimo, está levando você para mais longe de onde estava. Essa é a verdadeira mudança.
 
 O importante não é ir rápido: é não parar.
+
+Não deixe que a sensação de “ainda não estou pronta” faça você esquecer que já está em movimento. Ninguém começa dominando tudo. Tudo começa com um primeiro passo.
+
+Hoje, sua tarefa não é se sentir especialista. Sua tarefa é se permitir começar.
