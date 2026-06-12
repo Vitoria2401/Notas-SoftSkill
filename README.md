@@ -29,7 +29,7 @@ Zona de conforto: o conhecido, o seguro, o confortável. Aqui não há aprendiza
 Zona de aprendizagem: existe esforço, desconforto e dúvidas. Mas também existe crescimento.
 Zona de pânico: desafio demais de uma só vez. Pode nos paralisar em vez de impulsionar.
 
-Atividade de casa: Me inscrever no curso fotovoltaicos e iniciar o curso com o Gael.
+Atividade de casa: Me inscrevi em um curso presencial onde tem uma cuidoteca e meu filho vai comigo.
 
 A verdadeira mudança geralmente acontece de outra forma: com pequenas decisões sustentadas ao longo do tempo.
 
